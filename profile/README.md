@@ -2,6 +2,8 @@
 ## What is Block Blast MOD APK?  
 Block Blast MOD APK is a fun and engaging puzzle game where players strategically place blocks to clear rows and columns on an 8x8 grid. It combines classic block puzzle mechanics with modern enhancements to deliver an exciting gaming experience. The game ends when no more moves are possible, making every decision crucial.  
 
+## Download: [Block Blast APK](https://tinyurl.com/block-blast-mod-apk)
+
 This modified version offers additional features, including unlimited resources, no ads, and game boosters that improve gameplay. Players can enjoy an ad-free gaming experience while utilizing unlimited revives and high-score boosters.  
 
 ## Features of Block Blast MOD APK  
